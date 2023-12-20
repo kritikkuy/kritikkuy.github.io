@@ -1,0 +1,1 @@
+# kritikkuy.github.io
